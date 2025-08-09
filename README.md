@@ -40,3 +40,4 @@ This account is that place — **by Amber mains, for Amber mains**.
 
 *Fun stuff no?*
 As always if need anything ask at Amber.main.github@gmail.com or in the [discord](https://discord.com/invite/dG6AUUSrMu) @arcee
+![](https://komarev.com/ghpvc/?username=your-github-username)
